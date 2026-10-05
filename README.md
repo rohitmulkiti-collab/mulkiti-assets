@@ -1,0 +1,1 @@
+# mulkiti-assets
